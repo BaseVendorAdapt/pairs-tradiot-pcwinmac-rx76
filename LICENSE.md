@@ -1,4 +1,4 @@
-# 
+# جديد pairs trading bot سكريبتات لـ Mac OS | آلي pairs trading bot سكريبتات لـ PC Windows. مع تجميع متعدد DEX و أوامر جني الأرباح — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
